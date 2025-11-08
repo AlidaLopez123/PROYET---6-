@@ -1,3 +1,3 @@
 # PROYET---6-
 CONECTANDO CON FORMULARIO DE GOOGLE 
-[[ENCUENTA]](https://forms.gle/GxmU85Y3eh6A6i71A)]]
+[[ENCUESTA]](https://forms.gle/GxmU85Y3eh6A6i71A)]]
